@@ -1,5 +1,7 @@
 
-
+almost al 80 wit raffy, hes my favorite. 
+i also really like xavier. 
+i also own rentry.co/Ioveanddeepspace. i love lnd.
 <div align="center">
   
 [RENTRY](https://rentry.co/cradles)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://rinitoshi.atabook.org)    ˖    [STRAWPAGE](https://lukewarms.straw.page)

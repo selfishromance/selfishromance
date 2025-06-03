@@ -1,7 +1,10 @@
-<p align="center"> ❛ my hearts again in a daze . . ❜ : 🦈
-<p align="center"> <img src="https://i.postimg.cc/pXNTbrG6/image-2024-10-01-215642792.png"/>
-</p>
+
 
 <div align="center">
   
-[RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://bluelock.atabook.org)    ˖    [STRAWPAGE](https://bluelocks.straw.page)
+[RENTRY](https://rentry.co/cradles)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://rinitoshi.atabook.org)    ˖    [STRAWPAGE](https://lukewarms.straw.page)
+
+<div align="center">
+  
+<p align="center"> <img src="https://64.media.tumblr.com/4678856e0872639dff3f49c58381154f/055291b35df515f2-64/s2048x3072/4970c94fa88add572a165a4a16064420241942b1.jpg"/>
+</p>
